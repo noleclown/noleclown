@@ -1,8 +1,8 @@
 Hi, I’m @noleclown
 
-Big fan of Football, Tennis and Music in general; 
+Big fan of Football, Tennis, F1, Music, bit of Reading and Writing, 
 
-#HALA MADRID, @djokernole, *Bruno, Post eating Malone on Mars this weekend, was being Yeyy slim shady* 
+@HALA MADRID*Zizou, @djokernole, @Senna, , @Slimshady, @Shakespeare, @Amma
 
 Also, like to read and write a bit :)
 
